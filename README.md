@@ -1,0 +1,1 @@
+# converte_empresas_cadastro_16.05.2026
